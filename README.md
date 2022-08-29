@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @jolonf
-- 👀 I’m interested in 1980s futurism and some blockchain
 - 📫 How to reach me: I'm not on most social networks. I'm on LinkedIn but hardly use it.
 
 <!---
